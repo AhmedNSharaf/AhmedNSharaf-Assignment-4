@@ -1,3 +1,4 @@
+sorry for be late for them , i will post one every day for 4 days and update this file with links inshallah
 # LinkedIn Posts
 
 ## 1. ref vs out
